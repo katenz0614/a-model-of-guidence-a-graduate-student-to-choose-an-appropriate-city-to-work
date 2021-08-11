@@ -1,0 +1,2 @@
+# a-model-of-guidence-a-graduate-student-to-choose-an-appropriate-city-to-work
+As the philosopher Heraclitus said no man ever steps in the same river twice, for it's  not the same river and he's not the same man. Therefore, making a decision can  change a person’s life. Specifically, if h a graduate student chooses an appropriate city  based on the industry scale of a city to work, they may easy get success in their career.
